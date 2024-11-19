@@ -4,7 +4,7 @@
 
 - You can contact me on: mail zturbeaux@gmail.com, linkedin www.linkedin.com/in/zacharie-turbeaux, discord Zac#6865
  
-- 😄 Pronouns: Edra or Zac, has you wish !
+- 😄 Pronouns: Zacharie or Zac or Edra, has you wish !
 
 
 <!---
