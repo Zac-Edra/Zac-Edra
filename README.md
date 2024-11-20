@@ -3,9 +3,6 @@
 - 🌱 I'm interested in system, network and security administration // Je suis intéressé par l'admin système, réseau et sécurité.
 
 - You can contact me on: mail zturbeaux@gmail.com, linkedin www.linkedin.com/in/zacharie-turbeaux, discord Zac#6865
- 
-- 😄 Pronouns: Zacharie or Zac or Edra, has you wish !
-
 
 <!---
 Zac-Edra/Zac-Edra is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
